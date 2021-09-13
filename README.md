@@ -13,3 +13,6 @@ A girl is at the funeral of her mother. She meets a nice guy that she didn’t k
 
 As the rains created a river, the princess could see ,not so far away, a little duck named Donald. Even though he was very small, he was was the bravest duck in the realm.
 ![Donald](tenor.gif)
+---
+### Hello Donald she said ! The duck almost fainted and then begun to qwack at her about her crying eyes.
+---

@@ -9,3 +9,5 @@ Then it rains...
 
 ## Love at a funeral
 A girl is at the funeral of her mother. She meets a nice guy that she didn’t know who also was at the funeral and they hit it off. She was busy at the funeral and didn’t have time to ask him for his number before he left. She tried really hard to track him down, but no one knew who he was or how to contact him. A few days later her sister dies and the police suspect it to be a murder. Who killed her sister?
+
+Maybe Donald Trump?
